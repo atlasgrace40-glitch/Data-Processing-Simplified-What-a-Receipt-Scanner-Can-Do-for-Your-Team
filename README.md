@@ -1,0 +1,1 @@
+# Data-Processing-Simplified-What-a-Receipt-Scanner-Can-Do-for-Your-Team
